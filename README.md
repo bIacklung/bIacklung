@@ -16,4 +16,3 @@ don't be shy, say hi if you're itching to ^_^
 [![687474-1.png](https://i.postimg.cc/c1TG9V0t/687474-1.png)](https://postimg.cc/dD7fDN7J) [![ezgif-4-a5d2f63fa6.jpg](https://i.postimg.cc/V63hG6dg/ezgif-4-a5d2f63fa6.jpg)](https://postimg.cc/5YSpjf5Q) [![K1NkFit.jpg](https://i.postimg.cc/7ZWfW8nh/K1NkFit.jpg)](https://postimg.cc/CRbhR2tp) [![CdsLsga.png](https://i.postimg.cc/y8dDjY92/CdsLsga.png)](https://postimg.cc/dLbQtF59) [![ezgif-4-4111d274ba.gif](https://i.postimg.cc/9F1pz0Ck/ezgif-4-4111d274ba.gif)](https://postimg.cc/4m7tSJKv)
 
 
-[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=o54mph5vlxlxjhub09db83qgh&cover_image=true&theme=default&show_offline=false&background_color=121212&interchange=false&bar_color=808080)](https://github.com/kittinan/spotify-github-profile)
