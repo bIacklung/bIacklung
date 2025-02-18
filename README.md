@@ -6,7 +6,7 @@ no dni ill block you if its that serious
 
 don't involve me in drama this is ponytown
 
-https://rentry.co/leathercouch my hoard
+https://rentry.co/onemanswar my directory
 
 
 
